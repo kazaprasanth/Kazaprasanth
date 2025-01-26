@@ -10,7 +10,7 @@ Talking about Deep Learning, AI, Computer Vision, Robotics, ML, LLM, Prompt Engi
 
 I'm open for Freelance gigs and contract based opportunities.
 
-I'm looking to collaborate and create some content to share within the github community.
+I'm looking to collaborate and create relevant content to share within the github community.
 
 
 
