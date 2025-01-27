@@ -33,6 +33,13 @@ My hobbies and Interests:
 4. Browsing net.
 5. Staying updated with latest AI trends.
 
+Soft skills:
+1. Problem-solving.
+2. Team work.
+3. Adaptability.
+4. Attention to detail.
+5. Effective communication.
+   
 
 
 
