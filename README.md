@@ -39,6 +39,10 @@ Soft skills:
 3. Adaptability.
 4. Attention to detail.
 5. Effective communication.
+
+My certifications and courses:
+1. Launching a Digital Business by Tech Nation Digital Business Academy.
+2. Certificate of achievement for successfully completing TCS-ion Career Edge- Young Professional.
    
 
 
